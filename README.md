@@ -5,6 +5,8 @@
 
 <!-- Here are some ideas to get you started: -->
 
+- best dev, best manager
+
 - 📫 How to reach me: 820917549@qq.com
 
 
